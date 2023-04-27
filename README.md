@@ -1,5 +1,3 @@
-# SamuelRuan2.github.io
-
 3+4=5
 
 # COMO FAZER BOLO DE CHOCOLATE SIMPLES
